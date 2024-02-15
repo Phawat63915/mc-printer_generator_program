@@ -1,0 +1,1 @@
+Because windows is retarded you may need to disable your computers anti-virrus to even download the printer generator program, it's a pain in the ass but as usual unidentified executables are considered the spawn of Satan
